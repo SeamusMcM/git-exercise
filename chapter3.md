@@ -1,6 +1,6 @@
 # Chapter 3: On Loss
 
-Days turned into weeks, and Benjamin missed his bike more than ever. He couldn't help but feel like a part of him had been taken away along with it. The once vibrant and joyful man became a shadow of his former self, consumed by bitterness and resentment.
+"Sir, we regret to inform you that this bike has been deemed a luxury item and therefore subject to a special tax," one of the officials said, producing a piece of paper with complex legal jargon printed on it.
 
-As Benjamin dwelled on his loss, he realized that his stolen bike was not just a material possession – it represented his freedom, his independence, and his ability to pursue happiness on his own terms. The government's actions felt like a metaphor for the crushing weight of capitalism and taxation, stripping away his autonomy and reducing him to a mere cog in a larger machine.
+Confused and disheartened, Peter tried to argue his case but to no avail. Reluctantly, he handed over his beloved bike, watching helplessly as the officials took it away. He trudged back home, feeling defeated and powerless against the system.
 
