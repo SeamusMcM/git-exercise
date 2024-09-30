@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3: On Loss
 
 Days turned into weeks, and Benjamin missed his bike more than ever. He couldn't help but feel like a part of him had been taken away along with it. The once vibrant and joyful man became a shadow of his former self, consumed by bitterness and resentment.
 

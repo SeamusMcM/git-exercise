@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1: Once Upon a Time
 
 Once upon a time, in a small town nestled among rolling hills, there lived a sad little man named Benjamin. Benjamin was a simple man, content with his humble life working at the local bakery and spending his evenings tinkering with old bicycles in his garage.
 

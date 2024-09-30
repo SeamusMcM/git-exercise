@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4: The End
 
 But deep within Benjamin's heart, a flicker of defiance ignited. He refused to let the system break his spirit completely. With newfound determination, he started a grassroots movement advocating for fairer taxation policies and greater transparency in government spending.
 
