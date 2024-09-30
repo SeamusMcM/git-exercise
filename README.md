@@ -2,7 +2,7 @@
 
 # The Sad Man and the Bike
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [Once Upon a Time](chapter1.md)
+- [Luxury Item](chapter2.md)
+- [On Loss](chapter3.md)
+- [The End](chapter4.md)
